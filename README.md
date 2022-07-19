@@ -1,1 +1,0 @@
-# metodosembarriga.com.br
